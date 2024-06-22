@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AquaAman
 - 👀 I’m interested in Bike riding.
 - 🌱 I’m currently learning digital marketing speaclist.
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on MARK IT TEN(DIGITAL MARKETING) AND RIDING GROUP OF TTI AND TMM.
 - 📫 How to reach me on instagram @aman_rider108
 - 😄 Pronouns: He
 
